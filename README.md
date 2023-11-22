@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  information technology...
 - 💞️ I’m looking to collaborate on .my project ogmd buying And puchesing fruits online..
 - 📫 How to reach me .
-yunushagenimana4@gmail.com.or my contacts:+25089835575..
+yunushagenimana4@gmail.com.or my contacts:+250789835575..
 
 <!---
 YunusSulaiman/YunusSulaiman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
